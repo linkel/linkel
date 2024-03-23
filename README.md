@@ -6,7 +6,7 @@ If you're going through a career change and could use a sympathetic ear, I'm her
 
 Hit me up via the email on my website. 
 
-Other topics I'm happy to talk about:
+Other topics I may find attractive:
 
 - mentorship in software engineering
 - the search for passion 
